@@ -1,0 +1,2 @@
+# adalah-pokonya-
+ya begitu
